@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning Planes, Python🤥 and 3D printing 
 - 😄 Pronouns: Risiko/Napoli
 - ⚡ Fun fact: I fucked an heater once
-- 🔞 Sex
